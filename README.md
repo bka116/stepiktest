@@ -6,3 +6,4 @@ i want to be a proffesional in this deal
 ok lets do it no pasaran
 new task
 sdlc stlc
+new some work here 
